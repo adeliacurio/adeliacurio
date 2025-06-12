@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data and Business Analysis
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on ... it's secret hahaha
-- 📫 How to reach me by sending Hi!
+- 📫 How to reach me by sending Hi in my social medias: @adeliasama (Discord/Instagram) @adeliacurio (LinkedIn/GitHub)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm addicted in asian culture hehehe
 
