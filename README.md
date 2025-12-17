@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adeliacurio
+- 👋 Hi, I’m Adélia!
 - 👀 I’m interested in Data and Business Analysis
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on ... it's secret hahaha
