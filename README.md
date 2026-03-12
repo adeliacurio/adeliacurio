@@ -28,7 +28,7 @@ De uma carreira sólida de quase 9 anos em gestão para a análise estratégica 
 
 ### 📫 Vamos conversar?
 
-* **LinkedIn** [in/adeliacurio](https://linkedin.com/in/adeliacurio/)
+* **LinkedIn:** [in/adeliacurio](https://linkedin.com/in/adeliacurio/)
 * **Localização:** Rio de Janeiro, Brasil 🇧🇷
 
 ---
