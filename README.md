@@ -28,8 +28,7 @@ De uma carreira sólida de quase 9 anos em gestão para a análise estratégica 
 
 ### 📫 Vamos conversar?
 
-* **LinkedIn:** [Seu Link do LinkedIn aqui]
-* **Portfólio de Apresentação:** [Link da sua apresentação no Gamma]
+* **LinkedIn** [in/adeliacurio](https://linkedin.com/in/adeliacurio/)
 * **Localização:** Rio de Janeiro, Brasil 🇧🇷
 
 ---
